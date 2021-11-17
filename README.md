@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Warkilled
+- 👋 Hi, I’m @Surya 
 - 👀 I’m interested in  learning things
 - 🌱 I’m currently learning developing
 - 💞️ I’m looking to collaborate on people to gain more knowledge
